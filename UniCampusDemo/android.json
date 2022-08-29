@@ -1,0 +1,8 @@
+{
+  "version": "1.0.2",
+  "title": "support dual(and more) parse",
+  "content": "This is another hello!",
+  "url": "https://linzh.me",
+  "forcePush" : 1,
+  "buildNumber": 10062
+}
