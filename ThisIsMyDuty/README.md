@@ -9,7 +9,7 @@
 - [关于目前毕业后改证，学历不再可以修改的情况 - Douban](https://web.archive.org/web/20230325145930/https://www.douban.com/group/topic/280415861/)
 - [中國跨性別現狀的反饋 - Twitter](https://web.archive.org/web/20230317204132/https%3A%2F%2Ftwitter.com%2FCrystal_WangSW%2Fstatus%2F1636575011854073856)
 - [香港HRT處方指南](https://web.archive.org/web/20230322141854/https://mobile.twitter.com/christine_ctw/status/1638421527082459136)
-  - HRT-HK.jpeg
+  - [上文中的圖片，目錄下的HRT-HK.jpeg](https://github.com/Linzh7/BigFileArchive1/blob/master/ThisIsMyDuty/HRT-HK.jpeg?raw=true)
 
 
 ## 視頻
