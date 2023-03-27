@@ -10,6 +10,7 @@
 - [中國跨性別現狀的反饋 - Twitter](https://web.archive.org/web/20230317204132/https%3A%2F%2Ftwitter.com%2FCrystal_WangSW%2Fstatus%2F1636575011854073856)
 - [香港HRT處方指南](https://web.archive.org/web/20230322141854/https://mobile.twitter.com/christine_ctw/status/1638421527082459136)
   - [上文中的圖片，目錄下的HRT-HK.jpeg](https://github.com/Linzh7/BigFileArchive1/blob/master/ThisIsMyDuty/HRT-HK.jpeg?raw=true)
+- [華典醋酸環丙孕酮的武漢製藥方溝通紀錄](https://web.archive.org/web/20230317183207/https://twitter.com/BikerDuality/status/1590294112615673856)
 
 
 ## 視頻
