@@ -14,6 +14,9 @@
 - [北京二中院：人民法院尊重和保护跨性别者的人格、尊严及正当权利，用人单位不得基于就业歧视的原因作出解除劳动合同决定](https://web.archive.org/web/20230401102618/https://mp.weixin.qq.com/s/jijEQOTpg0QVjXfHg6WfXA)
 
 
+- [日本留住](https://web.archive.org/web/20230401174600/https://twitter.com/Wo__o__oW/status/1634532553905541120)
+
+
 ## 視頻
 
 - 陽光開朗孔乙己.mp4
