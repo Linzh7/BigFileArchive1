@@ -11,6 +11,7 @@
 - [香港HRT處方指南](https://web.archive.org/web/20230322141854/https://mobile.twitter.com/christine_ctw/status/1638421527082459136)
   - [上文中的圖片，目錄下的HRT-HK.jpeg](https://github.com/Linzh7/BigFileArchive1/blob/master/ThisIsMyDuty/HRT-HK.jpeg?raw=true)
 - [華典醋酸環丙孕酮的武漢製藥方溝通紀錄](https://web.archive.org/web/20230317183207/https://twitter.com/BikerDuality/status/1590294112615673856)
+- [北京二中院：人民法院尊重和保护跨性别者的人格、尊严及正当权利，用人单位不得基于就业歧视的原因作出解除劳动合同决定](https://web.archive.org/web/20230401102618/https://mp.weixin.qq.com/s/jijEQOTpg0QVjXfHg6WfXA)
 
 
 ## 視頻
